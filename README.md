@@ -3,11 +3,11 @@
 <div align="center">
 
 </div> 
-ㅤ—————————— ☆ ———————————
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ————ㅤㅤㅤ~~ㅤㅤㅤㅤ—————————— ☆ ———————————ㅤㅤㅤㅤ~~ㅤㅤㅤㅤ————
 
 <p align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://rosenrose.atabook.org/?page=1"><img src="https://file.garden/auSdALBapyS3KiCZ/Untitled12_20261104191529.png" alt="Alt Text" width="60"></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://rosenrose.atabook.org/?page=1"><img src="https://file.garden/auSdALBapyS3KiCZ/Untitled12_20261104191529.png" alt="Alt Text" width="100"></a>
 </p>
 
 
